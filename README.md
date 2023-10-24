@@ -9,7 +9,7 @@
 
 🎓 Eu estudo [ [Análise e Desenvolvimento de Sistemas](https://descomplica.com.br/faculdade/tecnologia/analise-e-desenvolvimento-de-sistemas/) | [Desenvolvimento de Software com Foco em Back-End](https://cubos.academy/cursos/desenvolvimento-de-software) ] @ [ [Descomplica](https://descomplica.com.br/) | [Cubos Academy](https://cubos.academy/)]
 
-🔎 Também sou curioso em Ciência Tecnológica 
+🔎 Também sou apaixonado em Ciência Tecnológica 
 
 ✒️ Eu gosto de no meu tempo livre Tocar Violão | Escutar Música | Assistir Futebol, Jogar Futebol e Jogar Jogo de Futebol;
 
